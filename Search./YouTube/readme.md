@@ -1,2 +1,4 @@
+- https://www.youtube.com/results?search_query=lightning+protection
+- https://www.youtube.com/results?search_query=lightning+arrester
 - https://www.youtube.com/results?search_query=solar+lightning+protection
-- https://www.youtube.com/results?search_query=solar+lightning+arrestor
+- https://www.youtube.com/results?search_query=solar+lightning+arrester
