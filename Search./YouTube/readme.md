@@ -2,3 +2,4 @@
 - https://www.youtube.com/results?search_query=lightning+arrester
 - https://www.youtube.com/results?search_query=solar+lightning+protection
 - https://www.youtube.com/results?search_query=solar+lightning+arrester
+- https://en.wikipedia.org/wiki/Kite_experiment
