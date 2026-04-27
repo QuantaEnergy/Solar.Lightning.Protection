@@ -1,0 +1,1 @@
+- [Grounding Solar PV System, DIY, on Pallets](https://youtu.be/1ldNGpd7ebY)
