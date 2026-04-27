@@ -1,0 +1,1 @@
+- [DIY Home Solar System Lightning Protection EMP Shield](https://youtu.be/z02sSUsfDXg)
