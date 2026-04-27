@@ -1,0 +1,3 @@
+- https://en.wikipedia.org/wiki/Lightning
+- https://en.wikipedia.org/wiki/Lightning_arrester
+- https://en.wikipedia.org/wiki/Lightning_rod
